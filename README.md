@@ -1,6 +1,6 @@
 ### Hello there 🐶
 
-Doctolib is a wonderful place to work and learn, if you are interested join us [here](https://refer.hellotrusty.io/UUUTLL1FU/jobs/616ef529eb2d307cad7b2266) (Any question ? Shoot me an email at thornolf@hey.com)
+I am looking for a job in full remote or hybrid, I'm currently based in Finland near Espoo & Helsinki. Shoot me an email at thornolf@hey.com !
 <!--
 **Thornolf/thornolf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
