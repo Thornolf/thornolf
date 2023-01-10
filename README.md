@@ -1,6 +1,5 @@
 ### Hello there 🐶
 
-I am looking for a job in full remote or hybrid, I'm currently based in Finland near Espoo & Helsinki. Shoot me an email at thornolf@hey.com !
 <!--
 **Thornolf/thornolf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
